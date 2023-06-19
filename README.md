@@ -31,6 +31,7 @@ I am currently writing-imagining an EP / DEMO, a follow up full Album. Then hope
 2. CyberWarfare
 3. Collective Consciousness
 4. Braggadotious DoomGuy track where I, Doomguy an 80's/90's MC rap about Mowing through slew after slew of Demons after the gateway to hell blown loose on Mars
+![Perspective](https://external-preview.redd.it/cbZ9gIh80xtYgV0XbQmXzkbEJD_otVr3bCRii14NpZQ.jpg?auto=webp&s=e0c6f7b876008a944ec8fcf4e3f6735aae2e9781)
 
 Sound Scape heavy inspirations:
 - Herbie Hancock 70's acid jazz funk stylings [Sleeping Giant](https://youtu.be/AlDKMABCB2c)
