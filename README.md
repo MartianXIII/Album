@@ -10,8 +10,8 @@ I am currently writing-imagining an EP / DEMO, a follow up full Album. Then hope
 
 ![Perspective](https://i.imgur.com/peH8D6r.gif)
 
+![space-harrier-32x-arcade](https://github.com/MartianXIII/Album/assets/12764740/2f54bc58-392e-493d-b2e1-f0d728f04d43)
 
-![Perspective](https://i0.wp.com/www.retrogamereviews.co.uk/wp-content/uploads/2018/07/space-harrier-32x-arcade.jpg?w=800&ssl=1)
 
 2. Sprite sheet art style for all antagonist 
 
