@@ -27,6 +27,11 @@ I am currently writing-imagining an EP / DEMO, a follow up full Album. Then hope
 
 ![cinet](https://github.com/MartianXIII/Album/assets/12764740/f9b1cdb7-b147-4c53-90fe-feef30e14910)
 
+![Screen Shot 2023-08-02 at 3 15 47 PM](https://github.com/MartianXIII/Album/assets/12764740/8dd5b9a1-542e-4577-a136-3636b71f6688)
+
+
+![Screen Shot 2023-08-02 at 3 16 04 PM](https://github.com/MartianXIII/Album/assets/12764740/7d0e5ea7-c0cb-47f5-8c17-6c98642b5e20)
+
 
 1. instead of the random spikey blonde protagonist, it would actually be Me, flavored with Marvin the Martian collor palete / essenence 
 ![Perspective](https://scontent-dfw5-2.xx.fbcdn.net/v/t1.18169-9/29108_10150194136040472_7302086_n.jpg?_nc_cat=107&ccb=1-7&_nc_sid=cdbe9c&_nc_ohc=w5Fr33axN28AX--cRUI&_nc_ht=scontent-dfw5-2.xx&oh=00_AfAFN0PMc9JRmi3d-uZJOOugpgGAIUXTRTZ4NVzUYJS1Bg&oe=64B7D98D)
